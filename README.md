@@ -9,7 +9,7 @@
 ## isaiah
 ## shark
 ## agbola
-## amos
+## amos a
 ## adejoke
 ## maliq
 ## temitayo
